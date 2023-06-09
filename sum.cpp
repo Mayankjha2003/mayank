@@ -1,1 +1,1 @@
-#bnm, m, ,<m,mcgfgg,mc,mn 
+meinn madarchod hu 
